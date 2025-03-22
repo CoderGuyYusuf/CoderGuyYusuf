@@ -1,4 +1,3 @@
 - 👋 Hi, I’m @CoderGuyYusuf
 - 👀 I’m interested in coding and making games(well i didnt made any)
 - 🌱 I’m trying to learn coding and making games
-- 📫 Im new i dont know much i need someone to teach me im using discord so if u want to teach me u can add me on discord here is my user YUSUFES0#1001
